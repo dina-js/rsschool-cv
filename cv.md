@@ -1,4 +1,4 @@
-# Nina Porolonova
+# Jana Squirt
 Front-end JavaScript Developer
 
 ## Contacts
